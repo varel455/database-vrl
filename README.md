@@ -1,1 +1,1 @@
-DO NOT TAKE THIS FILE 
+Peduli apa? Codex
